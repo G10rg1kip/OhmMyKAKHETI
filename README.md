@@ -1,2 +1,3 @@
 # OhmMyKAKHETI
-Follow my Electrican and Computer Jurney
+Follow my Electrican and Computer Engineering Advanture
+
